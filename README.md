@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lucioflaviogithub
 - 👀 I’m interested in ... Da escola Afiz Gebara Dr.
 - 🌱 I’m currently learning ... Aprender lógica de programação
-- 💞️ I’m looking to collaborate on ... 
+- 💞️ I’m looking to collaborate on ... Atenciosamente PArticipativo.
 - 📫 How to reach me ... estou Atualamente trabalhando Com Turmas Muito boas... 
 
 <!---
